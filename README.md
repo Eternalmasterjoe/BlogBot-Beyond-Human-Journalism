@@ -1,1 +1,1 @@
-YES
+Why read articles by professional when a; specifically MY machine can do it better?
