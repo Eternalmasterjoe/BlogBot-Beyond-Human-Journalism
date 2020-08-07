@@ -1,1 +1,1 @@
-Why read articles by professional when a; specifically MY machine can do it better?
+Why read articles by a professional when a; specifically MY machine can do it better?
